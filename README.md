@@ -101,5 +101,5 @@ With deep expertise and strategic insights, TravelRelocate makes your immigratio
 
 ---
 
-> *This content is provided by [TravelRelocate](https://www.travelrelocate.com.sg), a Singapore-based immigration consultancy offering expert guidance for individuals and families relocating to Singapore.*
+> *This content is provided by [TravelRelocate](https://travelrelocate.com), a Singapore-based immigration consultancy offering expert guidance for individuals and families relocating to Singapore.*
 
